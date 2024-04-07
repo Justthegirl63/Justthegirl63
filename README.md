@@ -1,0 +1,12 @@
+- 👋 Hi, I’m @Justthegirl63
+- 👀 I’m interested in making roblox games
+- 🌱 I’m currently learning how to make animations
+- 💞️ I’m looking to collaborate on roblox/discord
+- 📫 How to reach me:discord is lolasxx my snap is
+- midla smike
+- 😄 Pronouns: She/her
+- ⚡ Fun fact: did u know that when making roblox animations sm1 might over work for the face
+- 😝 I love cats and 
+- call me Stacy or Jane
+- .◇.◇.
+- love yall bye!!
